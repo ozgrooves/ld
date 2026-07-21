@@ -10,55 +10,55 @@
 
 ### Set 1
 
-* Never too much [?] [link](https://www.youtube.com/watch?v=bNdIST6oPl4)
-* Respect [?] [link](https://www.youtube.com/watch?v=9iayJ8u4Qew)
-* Treasure [?] [link](https://www.youtube.com/watch?v=-XcaZn-lKFo)
-* Upside Down [?] [link](https://www.youtube.com/watch?v=lZ9OP5dzkQg)
-* Happy [?] [link](https://www.youtube.com/watch?v=jv-pYB0Qw9A)
-* This Girl [?] [link](https://www.youtube.com/watch?v=ULIwsV3s9qc)
-* Lovely Day [?] [link](https://www.youtube.com/watch?v=bEeaS6fuUoA)
-* Swim Good [?] [link](https://www.youtube.com/watch?v=ic1nhvWBvIo)
+* Never too much [D] [link](https://www.youtube.com/watch?v=bNdIST6oPl4)
+* Respect [C] [link](https://www.youtube.com/watch?v=9iayJ8u4Qew)
+* Treasure [Cm] [link](https://www.youtube.com/watch?v=-XcaZn-lKFo)
+* Upside Down [B] [link](https://www.youtube.com/watch?v=lZ9OP5dzkQg)
+* Happy [F] [link](https://www.youtube.com/watch?v=jv-pYB0Qw9A)
+* This Girl [F#] [link](https://www.youtube.com/watch?v=ULIwsV3s9qc)
+* Lovely Day [E] [link](https://www.youtube.com/watch?v=bEeaS6fuUoA)
+* Swim Good [Ab] [link](https://www.youtube.com/watch?v=ic1nhvWBvIo)
 * Just The Two Of Us [Fm] [link](https://www.youtube.com/watch?v=PJ0u5c9EF1E)
-* Let’s Groove [?] [link](https://www.youtube.com/watch?v=8D4hcrkI2xU)
+* Let’s Groove [Am] [link](https://www.youtube.com/watch?v=8D4hcrkI2xU)
 
 ### Set 2
 
-* I’m Coming Out [?] [link](https://www.youtube.com/watch?v=vqUVFukbrbU)
+* I’m Coming Out [A] [link](https://www.youtube.com/watch?v=vqUVFukbrbU)
 * Stand by me [A] [link](https://www.youtube.com/watch?v=hwZNL7QVJjE)
-* Higher and Higher [?] [link](https://www.youtube.com/watch?v=Gn6SNbTD0_Q)
-* Sittin on the Dock of the Bay [?] [link](https://www.youtube.com/watch?v=1DRYouQzPrE)
-* Brick House [?] [link](https://www.youtube.com/watch?v=rrBx6mAWYPU)
-* Fuck you [?] [link](https://www.youtube.com/watch?v=k2ufdwRMy4I)
-* Can’t Help Falling in Love [?] [link](https://www.youtube.com/watch?v=vGJTaP6anOU)
-* Isn’t She Lovely [?] [link](https://www.youtube.com/watch?v=oE56g61mW44)
+* Higher and Higher [Bb] [link](https://www.youtube.com/watch?v=Gn6SNbTD0_Q)
+* Sittin on the Dock of the Bay [G] [link](https://www.youtube.com/watch?v=1DRYouQzPrE)
+* Brick House [E] [link](https://www.youtube.com/watch?v=rrBx6mAWYPU)
+* Fuck you [C] [link](https://www.youtube.com/watch?v=k2ufdwRMy4I)
+* Can’t Help Falling in Love [D] [link](https://www.youtube.com/watch?v=vGJTaP6anOU)
+* Isn’t She Lovely [E] [link](https://www.youtube.com/watch?v=oE56g61mW44)
 
 ### Set 3
 
-* For Gods Sake (Lucky Dip) [?] [link](https://www.youtube.com/watch?v=F04-PWTOdsU)
-* Let’s Stay Together [?] [link](https://www.youtube.com/watch?v=XXx6RDzR6eM)
-* American Boy [?] [link](https://www.youtube.com/watch?v=Ic5vxw3eijY)
-* Signed Sealed Delivered [?] [link](https://www.youtube.com/watch?v=6To0fvX_wFA)
-* Lady Marmelade [?] [link](https://www.youtube.com/watch?v=OqhJ5-MpOh4)
-* Sir Duke [?] [link](https://www.youtube.com/watch?v=EnNgASBdCeo)
-* I Wish [?] [link](https://www.youtube.com/watch?v=c7IYSAUj78g)
+* For Gods Sake (Lucky Dip) [F#] [link](https://www.youtube.com/watch?v=F04-PWTOdsU)
+* Let’s Stay Together [F] [link](https://www.youtube.com/watch?v=XXx6RDzR6eM)
+* American Boy [F#] [link](https://www.youtube.com/watch?v=Ic5vxw3eijY)
+* Signed Sealed Delivered [D] [link](https://www.youtube.com/watch?v=6To0fvX_wFA)
+* Lady Marmelade [Cm] [link](https://www.youtube.com/watch?v=OqhJ5-MpOh4)
+* Sir Duke [B] [link](https://www.youtube.com/watch?v=EnNgASBdCeo)
+* I Wish [Ebm] [link](https://www.youtube.com/watch?v=c7IYSAUj78g)
 
 ### Set 4
 
-* Hot Stuff [?] [link](https://www.youtube.com/watch?v=tJxOXzE5A8w)
-* Can’t Take My Eyes Off You [?] [link](https://www.youtube.com/watch?v=J36z7AnhvOM)
-* Dancing in the Moonlight [?] [link](https://www.youtube.com/watch?v=GSWcy-bx_lg)
-* Celebration [?] [link](https://www.youtube.com/watch?v=1Qu6Dyn-c6M)
+* Hot Stuff [A] [link](https://www.youtube.com/watch?v=tJxOXzE5A8w)
+* Can’t Take My Eyes Off You [E] [link](https://www.youtube.com/watch?v=J36z7AnhvOM)
+* Dancing in the Moonlight [D] [link](https://www.youtube.com/watch?v=GSWcy-bx_lg)
+* Celebration [Ab] [link](https://www.youtube.com/watch?v=1Qu6Dyn-c6M)
 * Move on up [Bm] [link](https://www.youtube.com/watch?v=A9RMr9KuVZo)
-* Sex Bomb [?] [link](https://www.youtube.com/watch?v=QMoXON7k--c)
-* Georgia On My Mind [?] [link](https://www.youtube.com/watch?v=ggGzE5KfCio)
-* Let’s Get It On [?] [link](https://www.youtube.com/watch?v=tQj1kPmQXwE)
-* Crazy (Swing Version) [?] [link](https://www.youtube.com/watch?v=JZQzAWzSsn4)
+* Sex Bomb [Fm] [link](https://www.youtube.com/watch?v=QMoXON7k--c)
+* Georgia On My Mind [G] [link](https://www.youtube.com/watch?v=ggGzE5KfCio)
+* Let’s Get It On [Eb] [link](https://www.youtube.com/watch?v=tQj1kPmQXwE)
+* Crazy (Swing Version) [Cm?] [link](https://www.youtube.com/watch?v=JZQzAWzSsn4)
 
 ### Zugabe
 
-* Le Freak [?] [link](https://www.youtube.com/watch?v=7PC-AcrHEKU)
-* Good Times [?] [link](https://www.youtube.com/watch?v=Er9xGRolrT4)
-* Over My Shoulder [?] [link](https://www.youtube.com/watch?v=o4E_SAdSMvc)
+* Le Freak [Am] [link](https://www.youtube.com/watch?v=7PC-AcrHEKU)
+* Good Times [Em] [link](https://www.youtube.com/watch?v=Er9xGRolrT4)
+* Over My Shoulder [D] [link](https://www.youtube.com/watch?v=o4E_SAdSMvc)
 
 [Back to top](#gigs)
 
