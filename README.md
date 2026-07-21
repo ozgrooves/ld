@@ -27,30 +27,30 @@
 * Stand by me [A] [link](https://www.youtube.com/watch?v=hwZNL7QVJjE)
 * Higher and Higher [?] [link](https://www.youtube.com/watch?v=Gn6SNbTD0_Q)
 * Sittin on the Dock of the Bay [?] [link](https://www.youtube.com/watch?v=1DRYouQzPrE)
-* Brick House [?] [link]()
+* Brick House [?] [link](https://www.youtube.com/watch?v=rrBx6mAWYPU)
 * Fuck you [?] [link](https://www.youtube.com/watch?v=k2ufdwRMy4I)
 * Can’t Help Falling in Love [?] [link](https://www.youtube.com/watch?v=vGJTaP6anOU)
-* Isn’t She Lovely [?] [link](
+* Isn’t She Lovely [?] [link](https://www.youtube.com/watch?v=oE56g61mW44)
 
 ### Set 3
 
 * For Gods Sake (Lucky Dip) [?] [link](https://www.youtube.com/watch?v=F04-PWTOdsU)
 * Let’s Stay Together [?] [link](https://www.youtube.com/watch?v=XXx6RDzR6eM)
-* American Boy [?] [link](
-* Signed Sealed Delivered [?] [link](
+* American Boy [?] [link](https://www.youtube.com/watch?v=Ic5vxw3eijY)
+* Signed Sealed Delivered [?] [link](https://www.youtube.com/watch?v=6To0fvX_wFA)
 * Lady Marmelade [?] [link](https://www.youtube.com/watch?v=OqhJ5-MpOh4)
-* Sir Duke [?] [link](
-* I Wish [?] [link](
+* Sir Duke [?] [link](https://www.youtube.com/watch?v=EnNgASBdCeo)
+* I Wish [?] [link](https://www.youtube.com/watch?v=c7IYSAUj78g)
 
 ### Set 4
 
 * Hot Stuff [?] [link](https://www.youtube.com/watch?v=tJxOXzE5A8w)
 * Can’t Take My Eyes Off You [?] [link](https://www.youtube.com/watch?v=J36z7AnhvOM)
-* Dancing in the Moonlight [?] [link](
-* The Gang – Celebration [?] [link](https://www.youtube.com/watch?v=1Qu6Dyn-c6M)
+* Dancing in the Moonlight [?] [link](https://www.youtube.com/watch?v=GSWcy-bx_lg)
+* Celebration [?] [link](https://www.youtube.com/watch?v=1Qu6Dyn-c6M)
 * Move on up [Bm] [link](https://www.youtube.com/watch?v=A9RMr9KuVZo)
-* Sex Bomb [?] [link](
-* Georgia On My Mind [?] [link](
+* Sex Bomb [?] [link](https://www.youtube.com/watch?v=QMoXON7k--c)
+* Georgia On My Mind [?] [link](https://www.youtube.com/watch?v=ggGzE5KfCio)
 * Let’s Get It On [?] [link](https://www.youtube.com/watch?v=tQj1kPmQXwE)
 * Crazy (Swing Version) [?] [link](https://www.youtube.com/watch?v=JZQzAWzSsn4)
 
